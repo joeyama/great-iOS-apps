@@ -28,7 +28,7 @@ https://appsliced.co/app?n=things-3&l=list
 https://appsliced.co/app?n=m-camera&l=list
 
 1. SNOW - Best apps for selfie.  
-You don't have to do facelifting. SNOW will beautify as you desired.  
+You don't have to do facelifting. SNOW will beautify whatever you desired.  
 https://appsliced.co/app?n=snow-selfie-motion-sticker  
 
 1. 8mm Vintage Camera - Create '20-ish black and white/'60-ish/'70-ish haldheld 8mm movies.  
